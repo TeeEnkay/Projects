@@ -41,7 +41,7 @@ Click on any of the links i provided to get more information and interract with 
 ## Certification
 
 - Google Cybersecurity Professional Certificate.
-  **[Verify@](https://www.coursera.org/account/accomplishments/professional-cert/M44Z5HVEYATZ)**
+  **[Verify here](https://www.coursera.org/account/accomplishments/professional-cert/M44Z5HVEYATZ)**
 
 
 ## Contact
